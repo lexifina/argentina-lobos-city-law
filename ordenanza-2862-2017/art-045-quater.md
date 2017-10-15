@@ -1,0 +1,1 @@
+ARTÍCULO 45 quater: Queda expresamente establecido que las cuestiones referidas a habilitación de los transportes de pasajeros mencionados en el artículo 45bis, queda en la exclusiva órbita de los organismos nacionales y/o provinciales competentes.-”
