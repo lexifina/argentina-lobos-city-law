@@ -1,0 +1,7 @@
+Ordenanza Nº3027/20
+Ordenanza Nº 3027/20
+Lobos, 22/10/2020
+Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por UNANIMIDAD
+la siguiente:
+O R D E N A N Z A N° 3 0 2 7
+ORDENANZA
