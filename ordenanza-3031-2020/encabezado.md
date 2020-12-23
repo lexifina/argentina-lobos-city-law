@@ -1,0 +1,7 @@
+Ordenanza Nº3031/20
+Ordenanza Nº 3031/20
+Lobos, 24/11/2020
+ORDENANZA
+Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por
+UNANIMIDAD la siguiente:
+O R D E N A N Z A N° 3 0 3 1
