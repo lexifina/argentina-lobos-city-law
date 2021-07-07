@@ -1,0 +1,7 @@
+Ordenanza Nº3037/2021
+Ordenanza Nº 3037/2021
+Lobos, 03/02/2021
+“Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por
+UNANIMIDAD la siguiente:
+ORDENANZA
+O R D E N A N Z A N º 3 0 3 7
