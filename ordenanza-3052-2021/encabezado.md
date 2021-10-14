@@ -1,0 +1,7 @@
+Ordenanza Nº3052/2021
+Ordenanza Nº 3052/2021
+Lobos, 10/06/2021
+“Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por
+UNANIMIDAD la siguiente:
+ORDENANZA
+O R D E N A N Z A N º 3 0 5 2
