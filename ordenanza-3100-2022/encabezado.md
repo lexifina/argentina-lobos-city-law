@@ -1,0 +1,6 @@
+Ordenanza Nº3100/2022
+Ordenanza Nº 3100/2022
+Lobos, 14/06/2022
+“Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por UNANIMIDAD la siguiente:
+O R D E N A N Z A N° 3 1 0 0
+ORDENANZA
