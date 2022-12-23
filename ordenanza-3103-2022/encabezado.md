@@ -1,0 +1,7 @@
+Ordenanza Nº3103/2022
+Ordenanza Nº 3103/2022
+Lobos, 12/07/2022
+“VISTO: El Expediente N° 79/2022. – Iniciado por: INSTITUTO SUPERIOR DE FORMACION DOCENTE N° 153 – Caratulado: PETICIONA.-
+Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por UNANIMIDAD la siguiente:
+O R D E N A N Z A N° 3 1 0 3
+ORDENANZA
