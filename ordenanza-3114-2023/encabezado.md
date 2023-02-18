@@ -1,0 +1,6 @@
+Ordenanza Nº3114/2022
+Ordenanza Nº 3114/2022
+Lobos, 09/08/2022
+Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por MAYORIA la siguiente:
+ORDENANZA
+O R D E N A N Z A N° 3 1 1 4
