@@ -1,0 +1,6 @@
+Ordenanza Nº3148/2023
+Ordenanza Nº 3148/2023
+Lobos, 02/05/2023
+“Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por UNANIMIDAD la siguiente:
+ORDENANZA
+O R D E N A N Z A N° 3 1 4 8
