@@ -1,0 +1,10 @@
+Ordenanza Nº3159/2023
+Ordenanza Nº 3159/2023
+Lobos, 11/07/2023
+“VISTO: El Convenio de Renegociación CONVE-2023-2057906520579065-GDEBA-IVMHYDUGP, celebrado entre el Instituto de la Vivienda y el Municipio de Lobos; y
+CONSIDERANDO: Que la resolución RESOC-2022-2-GDEBA-IVMHYDUGP del 16 de Agosto de 2022 del Ministerio de Hábitat y Desarrollo Urbano de la Provincia de Buenos Aires y el Instituto de la Vivienda de la Provincia de Buenos Aires crea el Programa de Redeterminaciones y Renegociaciones destinado a promover acciones conjuntas con la Municipalidades de la Provincia de Buenos Aires y/o entidades sin fines de lucro, para la conclusión de emprendimientos iniciados con intervención del Instituto de la Vivienda.-
+Que la RESO-2023-750-GDEBA-IVMHYDUGP del Instituto de la Vivienda de la Provincia de Buenos Aires aprueba el Convenio de Renegociación, designado como CONVE-2023-2057906520579065-GDEBA-IVMHYDUGP, con fecha 18 de Mayo de 2023.-
+Que el Convenio aprobado deja sin efecto el monto de financiamiento del convenio N°09-145-19-CONVE-2019-34694767-GDEBA-IVMIYSPGP aprobado por Resolución N°7917/19-RESOL-219-7917- GDEBA-IVMIYSPGP que aprueba la asistencia financiera del Municipio de Lobos, para la ejecución de la terminación de la obra “Construcción de 30 viviendas en la localidad y partido de Lobos” por la suma de PESOS DOSCIENTOS DIEZ MILLONES TRESCIENTOS OCHO MIL TRESCIENTOS VEINTISEIS CON 32/00 ($210.308.326,32) equivalentes a la cantidad de UN MILLÓN TRESCIENTAS DOS MIL DOSCIENTAS NOVENTA Y NUEVE CON 38/00 Unidades de Vivienda, Ley 22251 y Decreto N°635/21 (1.302.299,38 UVIs) valor referido al 30 de Noviembre de 2022, lo que se ejecutará de acuerdo al Decreto-Ley N°9104/78 y Resoluciones IVBA N°919/92 y modificatorias y N°4522/00 el Reglamento para las negociaciones aprobado como ANEXO II de la RESOC-2022-2-GDEBA-IVMHYDUGP, que se agrega copia a la presente.-
+Por ello, EL HONORABLE CONCEJO DELIBERANTE DE LOBOS, sanciona por UNANIMIDAD la siguiente:
+ORDENANZA
+O R D E N A N Z A N° 3 1 5 9
