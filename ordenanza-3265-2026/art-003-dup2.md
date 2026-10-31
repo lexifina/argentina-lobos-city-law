@@ -1,0 +1,1 @@
+ARTÍCULO 3º: El objeto de la presente declaración es garantizar la preservación, conservación y puesta en valor del inmueble, reconociendo su trayectoria desde su origen como centro social y cultural (Club Centro Unión) hasta su actual función como centro comunitario y religioso.-
